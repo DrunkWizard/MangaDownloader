@@ -20,4 +20,4 @@
 - Собрать.
 
 ## Видео работы программы
-[![Видео работы программы](https://sun9-50.userapi.com/c858416/v858416721/21226f/mEhJCPa-5PM.jpg)](https://drive.google.com/file/d/1fexwdU7rHvKSFG9bVtIs7DvxAG6eyNep/view)
+[![Видео работы программы](https://sun9-50.userapi.com/c858416/v858416721/21226f/mEhJCPa-5PM.jpg)](https://sun9-52.userapi.com/c206828/v206828961/16a46d/2KpNpc5qvfI.jpg)
